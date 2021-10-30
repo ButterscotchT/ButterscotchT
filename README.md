@@ -1,0 +1,3 @@
+- Hi, I’m @ButterscotchT
+- I do digital art and I want to learn programming and collaboration to better pursue my personal projects and to get work experience.
+- I'm available mainly at Twitter @ButterscotchArt
